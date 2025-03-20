@@ -77,3 +77,69 @@ Kael made his decision. Carefully, he knelt beside the fallen Drifter.
 He reached for his water skin, wondering if this strange being could even drink the same water his people did, or if its needs were as alien as its form.
 
 Only one way to find out.
+
+As Kael uncorked the water skin, a faint vibration trembled through the sand beneath his knees. He paused, water forgotten, every instinct suddenly alert. The vibration came again, stronger this time—a rhythmic disturbance in the earth that no wind could cause.
+
+Something was coming.
+
+Kael had heard tales of the Scorchlands' predators—beasts adapted to the merciless heat and relentless sun. Old hunters spoke of them with respect and fear. Most dangerous were the sand vipers—massive serpents that swam through loose soil as easily as fish through water, hunting by sensing vibrations of their prey.
+
+The fallen Drifter was broadcasting such vibrations with every labored breath.
+
+Kael backed away slowly, scanning the surrounding terrain. Nothing moved across the rippled surface of the sand, but the vibrations intensified, becoming a steady thrum beneath his feet. Whatever approached was large and moving fast.
+
+Twenty yards away, the sand bulged upward, then settled. Another bulge appeared closer, then another. The creature was circling, assessing its prey.
+
+Kael drew his knife, the blade seeming pitifully small for what was coming. He positioned himself between the circling predator and the fallen Drifter, feet planted wide.
+
+"I don't much like your chances," he muttered to himself, "but I've never run from a fight."
+
+The sand erupted ten yards away. A massive, wedge-shaped head burst into view—easily the size of Kael's torso, with scales the color of bleached bone glittering in the eternal twilight. Its jaw distended to reveal curved fangs dripping with venom. No eyes were visible on that terrible head, only heat-sensing pits that pulsed with an unholy light.
+
+The sand viper rose higher, its body thick as a man's waist, continuing to emerge until nearly fifteen feet of its length towered above the desert floor. It swayed, tasting the air with a forked tongue that flicked out almost lazily.
+
+Kael knew he should run. No man with sense faced such a creature alone. But running would abandon the Drifter to certain death.
+
+The viper struck without warning, its massive head shooting forward with impossible speed. Kael threw himself sideways, feeling the rush of displaced air as the creature missed him by inches. He rolled, came up slashing with his knife, scoring a shallow cut along the viper's scales.
+
+The beast recoiled, then struck again. This time Kael wasn't quite fast enough. The viper's head glanced off his shoulder, spinning him around and sending him sprawling. Pain flared across his upper arm where scales had scraped skin raw.
+
+Dazed, Kael scrambled backward. The viper followed, its massive body undulating across the sand with terrible purpose.
+
+"Come on then," Kael snarled, knife held before him. "You want a meal, you'll pay in blood for it."
+
+The viper reared back for another strike, its body coiling like a spring. Kael tensed, knowing he couldn't dodge again—his back was against the crater's edge, no room to maneuver.
+
+A flash of movement caught his eye. Behind the serpent, the Drifter had risen to one knee, moving with painful slowness. One clawed hand reached for the twin curved blades at its side.
+
+The viper lunged. Kael dove forward instead of away, ducking beneath the creature's jaw and driving his knife upward into the softer scales of its throat. The blade sank deep, but not deep enough. The viper's body whipped sideways, catching Kael full in the chest and sending him flying.
+
+He hit the ground hard, air driven from his lungs. Through a haze of pain, he saw the viper turn toward him, blood seeping from the wound in its neck. It advanced, jaws opening wide enough to swallow him whole.
+
+Then the Drifter was there, moving with sudden fluid grace despite its injuries. Both blades flashed in the twilight as it leapt impossibly high, membrane-wings half-extending to carry it onto the viper's back. The curved swords plunged downward in perfect unison, piercing the serpent's skull with practiced precision.
+
+The viper convulsed, its massive body thrashing wildly. The Drifter clung on, driving the blades deeper, twisting them with methodical efficiency. The serpent's movements slowed, then stopped altogether. It collapsed in a heap of coiled muscle and bone-white scales.
+
+Kael pushed himself to his feet, wincing at the pain in his ribs. The Drifter pulled its blades free with a wet sound, then turned to face him. For a long moment, they regarded each other in silence.
+
+The Drifter made a series of clicking sounds, followed by a low whistling note. Though Kael couldn't understand the words—if they were words—the meaning seemed clear enough: a question about his wellbeing.
+
+"I'll live," Kael said, gesturing to his bruised ribs. "You saved my life."
+
+The Drifter inclined its head, the broad-brimmed hat casting its features in deeper shadow. It sheathed one blade, then placed a clawed hand against its own chest, where a dark fluid seeped through a tear in its scale-covered hide.
+
+"You're hurt worse than I am," Kael observed. "And you still fought."
+
+The Drifter made another series of sounds, then gestured to Kael's knife, still embedded in the viper's throat. With careful movements, it pantomimed Kael's earlier actions—standing alone against a much larger foe.
+
+A warrior's acknowledgment. Respect.
+
+Kael limped forward and retrieved his knife, cleaning the blade on the sand. "I don't know what you are or where you came from," he said, "but I reckon we understand each other well enough."
+
+The Drifter swayed slightly, its injuries clearly taking a toll. It dropped to one knee again, breathing labored.
+
+Kael returned to his pack and pulled out his bundle of medicinal herbs. "Let's try this again," he said, approaching the Drifter with the water skin and herbs. "I'm going to help you. Then maybe you can help me."
+
+This time, the Drifter didn't pull away as Kael knelt beside it. Those alien eyes watched him carefully, but the curved blades remained sheathed.
+
+Trust, hard-won through blood and battle. It was a beginning.
